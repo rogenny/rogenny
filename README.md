@@ -1,4 +1,4 @@
-ㅤㅤ" Please, dont spoil my day, Im ㅤㅤㅤㅤㅤㅤㅤmiles away,
+ㅤ" Please, dont spoil my day, Im ㅤㅤㅤㅤㅤㅤㅤmiles away,
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
@@ -12,5 +12,6 @@ src="https://files.catbox.moe/sp5ffs.jpg" width="size">
 
 ㅤㅤ iwec & c*h ㅤㅤㅤㅤㅤㅤaudhd + ocd
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img src="IMG_20261029_175237.jpg" width="size">
 
 ㅤㅤㅤㅤㅤㅤand after all, Im only ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsleeping. "
